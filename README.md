@@ -1,4 +1,4 @@
-https://tenor.com/view/slash-guns-n-roses-guitar-dancing-rock-gif-13233227
+https://c.tenor.com/xlJRyYTxqcsAAAAC/slash-guns-n-roses.gif
  
  :trollface: Hi, I’m Jhonny :trollface:
 👀 I’m interested in learning programming and hardware related topics
